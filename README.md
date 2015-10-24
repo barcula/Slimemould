@@ -29,6 +29,12 @@ Here is my first experiment set-up with the results i had in mind
 
 ![](images/Phase4.jpg)
 
+Unfortunately my real results look completly differnt:
+
+https://vimeo.com/143471013
+
+
+
 
 
 
