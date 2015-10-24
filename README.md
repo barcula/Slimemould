@@ -33,6 +33,13 @@ Unfortunately my real results look completly differnt:
 
 https://vimeo.com/143471013
 
+Second try
+
+This time i decided to remove the labyrinth and yust take 3 dabs of couloriezed food.
+On each dab i put a slime mold, hoping it will grow up and absorb the colour.
+
+![](images/IMG_7971.JPG)
+
 
 
 
