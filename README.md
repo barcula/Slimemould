@@ -20,3 +20,9 @@ For these experiments we used a raspberry pi with an aditional cam to make const
 The first question i asked myself was : Can the slime mold change it`s color?
 So i decided to colorize the oat flakes with food coloring.
 
+Here is my first experiment set-up
+
+![](images/Beginn.jpg) ![](images/Phase1.jpg) 
+![](images/Phase2.jpg) ![](images/Phase3.jpg)
+
+
