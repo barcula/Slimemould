@@ -38,7 +38,8 @@ Second try
 This time i decided to remove the labyrinth and yust take 3 dabs of couloriezed food.
 On each dab i put a slime mold, hoping it will grow up and absorb the colour.
 
-![](images/IMG_7971.JPG)
+![](images/v2a.jpg)![](images/v2b.jpg)
+![](images/v2c.jpg)![](images/v2d.jpg)
 
 
 
