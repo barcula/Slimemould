@@ -33,7 +33,7 @@ Unfortunately my real results look completly differnt:
 
 https://vimeo.com/143471013
 
-Second try
+# Second try
 
 This time i decided to remove the labyrinth and yust take 3 dabs of couloriezed food.
 On each dab i put a slime mold, hoping it will grow up and absorb the colour.
@@ -41,11 +41,17 @@ On each dab i put a slime mold, hoping it will grow up and absorb the colour.
 ![](images/v2a.jpg)![](images/v2b.jpg)
 ![](images/v2c.jpg)![](images/v2d.jpg)
 
+https://vimeo.com/143522971
 
-This experiment did not work as i wanted but i can say that the slime mould doesn`t like the coulor i gave him.
-In both experiments the blue coulor wasn`t really attractive for him.
-The red coulor didn`t destroy it.
-As you can see in the movie the only coulor was yellow( witch is actualy it`s own colour)
+# Abstract
+
+This experiment did not work as i wanted but i still could extract some information. 
+The food colour might not was the right colour.
+In both experiments the blue coulor wasn`t really attractive for the slime mold. It was more like it was avoiding it instead.
+The red coulor was quite similar.It did not destroy it, but the slime mold wanted to go to an other source of food which is much more away.
+As you can see in the movie the only coulor was yellow( witch is actualy it`s own colour)witch was not avoided.
+I think it was realy interesting to work with this remarkable living thing. If i had more time for experiments like this i might have had results with more force of expression. 
+All in all it was real fun. Thanks to Fabian Morón Zirfas for this innovativ idea.
 
 
 
