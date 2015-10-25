@@ -47,11 +47,11 @@ https://vimeo.com/143522971
 
 This experiment did not work as i wanted but i still could extract some information. 
 The food colour might not was the right colour.
-In both experiments the blue coulor wasn`t really attractive for the slime mold. It was more like it was avoiding it instead.
-The red coulor was quite similar.It did not destroy it, but the slime mold wanted to go to an other source of food which is much more away.
-As you can see in the movie the only coulor was yellow( witch is actualy it`s own colour)witch was not avoided.
+In both experiments the blue coulor was not really attractive for the slime mold. It was more like he was avoiding it instead.
+The red coulor was quite similar.It did not destroy him, but the slime mold wanted to go to an other source of food which was much far away.
+As you can see in the movie the only coulor was yellow (witch is actualy it`s own colour)witch was not avoided.
 I think it was realy interesting to work with this remarkable living thing. If i had more time for experiments like this i might have had results with more force of expression. 
-All in all it was real fun. Thanks to Fabian Morón Zirfas for this innovativ idea.
+All in all it was real fun. Thanks to Fabian Morón Zirfas for this innovative idea.
 
 
 
